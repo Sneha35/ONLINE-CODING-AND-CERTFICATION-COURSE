@@ -1,1 +1,1 @@
-# ONLINE-CODING-AND-CERTFICATION-COURSE
+# certification-and-online-coding
